@@ -1,1 +1,0 @@
-# manonestore.github.io
